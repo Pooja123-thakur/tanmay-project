@@ -1,1 +1,1 @@
-# tanmay-project
+# my-own-infinite-gamer
